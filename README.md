@@ -1,1 +1,1 @@
-# hodesa-web-page-prototype
+# hodesa-web-page-prototype  -   •	HODESA DOO project: Achieving excellent business results for acquiring the right to a certificate of credit excellence of credit rating house Company Wall doo. In my final month at the company, I created a website (main page) prototype. 
